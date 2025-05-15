@@ -66,3 +66,18 @@ Potential for Earning:
 You can create your own WhatsApp TV channel and monetize it by sharing curated content, says a Flutterwave post.
 Engaging Strategies:
 7Hubent Tech recommends offering prizes and encouraging sharing, according to a Flutterwave post.
+
+
+#Add Your WhatsApp Group – Get 1000+ Members Instantly 🚀
+We're accepting active Pakistani WhatsApp groups in categories like Jobs, Study, TikTok, PUBG, Free Fire, Earning, Girls Chat, Money Making, and More.
+
+
+Your group will be published in top trending positions on our platform and seen by 1000s of visitors daily!
+
+
+📌 Submission Fee: #Naira. 1000 Only
+
+Accepted via Opay
+9077131487 
+ 7hubent
+Group published within 30 minutes
